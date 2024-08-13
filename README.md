@@ -5,7 +5,7 @@
 -  I hope to finish successfully.
 - 🌱 I have been  learning HTML, CSS, JAVASCRIPT, I will also learn PYTHON/DJANGO.
 - 💞️ I’m looking to collaborate on projects, learning, interaction and solution sharing...
-- 📫 How to reach me .. marveeygoodlife2024@outlo0k.com
+- 📫 How to reach me .. marveeygoodlife2024@outlook.com
 - 😄  
 - ⚡ Fun fact: YOU CAN DRINK WATER AND MIND YOUR BUSINESS TOO.
 
